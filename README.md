@@ -7,12 +7,3 @@ Denk je dat het makkelijk is ofzo?
 Je spookt door m'n hoofd omdat ik nogsteeds in ons geloof
 Maar we waren toch goud ze me wat als ik jou nooit vergeten kan
 Wat als ik jou nooit vergeten kan <3
-
-
-
-Jesse je bent een bafiaaan
-
-
-Homo
-
-dsafda
